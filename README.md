@@ -10,3 +10,7 @@ Gattone
 Cuccioletto del suo papino
 
 Emilia
+
+Riccardo
+
+Secondo me sono due
