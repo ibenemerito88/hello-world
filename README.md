@@ -7,10 +7,12 @@ Patundra
 
 Gattone
 
-Cuccioletto del suo papino
+Cuccioletti del suo papino e della sua mammina
 
 Emilia
 
 Riccardo
 
 Secondo me sono due
+
+Due bellissimi cuccioletti dei patundri
